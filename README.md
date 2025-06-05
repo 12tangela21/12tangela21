@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-<-- I will add more info along my journey≥-->
+<-- I will add more info along my journey-->
 
 
 - 💌 My name is Tangela Davis.
